@@ -9,4 +9,4 @@ I'm also:\
 📺 TV/Movie binger 
 
 ## 🎉 Let's Connect!
-[Website](https://haleyelder.com/) // [LinkedIn](https://www.linkedin.com/in/haleyelder/) // [Email](mailto:hello@haleyelder.com) // [Dev.to](https://dev.to/haleyelder) 
+[Website](https://haleyelder.com/) // [LinkedIn](https://www.linkedin.com/in/haleyelder/) //  [Comet's Studio, Craft && Code Blog](https://comets-studio.com/)
